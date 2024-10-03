@@ -1,3 +1,5 @@
+# CASİNOPER - 2024
+CASİNOPER GİRİS İÇİN TIKLAYINIZ 2024
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
@@ -7,5 +9,5 @@
     <img src="https://64.media.tumblr.com/dcabc89bdac2c0067a4fbdced9195d64/tumblr_inline_skrrwru1Df1yi17ge_500.jpg" />
 </a>
 </a>
-# CASİBOM - 2024
-CASİBOM-YENİ WEB SİTE-CASİBOM GİRİŞ 2024
+# CASİNOPER - 2024
+CASİNOPER WEB CASİNOPER GİRİŞ 2024
